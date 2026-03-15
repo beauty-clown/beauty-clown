@@ -18,6 +18,6 @@
 
 [rentry](https://rentry.co/therotfrominside) 
 ${\textsf{\color{#9fd9c0} / }}$
-[prns.pg](https://en.pronouns.page/@chadmalk)
+[atabook](https://the-rotten-one.atabook.org/)
 
  </sub>
